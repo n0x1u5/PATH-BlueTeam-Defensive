@@ -2,8 +2,9 @@
 
 Don't know which path to take to go into defensive security? Follow these instructions.
 
-![111](https://github.com/user-attachments/assets/ff68ccad-d4f2-49a1-94de-0eac18bbd437)
+![555](https://github.com/user-attachments/assets/295506bd-e971-4f17-baef-a00b7da44a08)
 
-![333](https://github.com/user-attachments/assets/393be31b-3f2b-4d4f-b987-ecf83efcc487)
+![111](https://github.com/user-attachments/assets/784162de-98f5-474f-80c9-234e7bc19745)
+
 
 
